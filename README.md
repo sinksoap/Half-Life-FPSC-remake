@@ -1,0 +1,1 @@
+so this is a "remake" of half life on the fps creator engine. but unfortinly its not going to be 100% acuret cuz i cant right now but soon ill be more acuret but i just want the basics and get the zombies in and alot of ect.
